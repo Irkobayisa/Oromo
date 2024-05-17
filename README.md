@@ -1,0 +1,2 @@
+# Oromo
+Oromo oromiya
